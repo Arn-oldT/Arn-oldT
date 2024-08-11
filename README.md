@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Arn-oldT
+- 👀 I’m interested in coding and playing games
+- 🌱 I’m currently learning java
+- 💞️ I’m looking to collaborate on Game
+- 📫 Mail me on lord.arnold.gamer@gmail.com
+- 😄 Pronouns: Hey Keep Grinding
+- ⚡ Fun fact: I like Milk
